@@ -1,1 +1,1 @@
-##### Teks Corp. website in construction.
+##### [Teks.ooo](http://www.teks.ooo) website (in construction).
